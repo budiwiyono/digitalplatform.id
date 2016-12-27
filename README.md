@@ -1,1 +1,1 @@
-# digitalplatfom.id
+# digitalplatform.id
